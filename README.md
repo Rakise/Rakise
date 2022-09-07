@@ -3,9 +3,9 @@
 
 
 
-### Olá wave
+### Olá 🐴
 
-### Bem vindo ao perfil blush
+### Bem vindo ao perfil 😳😳😳
 
 Linguagens com que trabalho
 
