@@ -5,7 +5,7 @@
 
 ### Olá 🐴
 
-### Bem vindo ao perfil 😳😳😳
+### Bem vindo ao perfil ☕
 
 Linguagens com que trabalho
 
